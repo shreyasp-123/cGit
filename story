@@ -1,0 +1,1 @@
+Harry's parents die, lives with his aunt and they mistreat him.
